@@ -4,7 +4,6 @@ there you have it
 
 # Credits
 
-Rover The Cool Dog
 
 Luca
 
