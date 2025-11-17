@@ -13,7 +13,6 @@ Befaci
 
 Beefjerkyz/swag frenzy/jim megatron
 
-Izhank216 (Izhan)
 
 Secret Staycation AUTTP
 
